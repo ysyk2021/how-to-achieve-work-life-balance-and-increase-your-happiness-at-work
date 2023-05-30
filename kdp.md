@@ -10,7 +10,7 @@ In this book, we'll cover topics such as time management, stress management, wor
 
 This book is like having a work-life balance coach at your fingertips, ready to guide you through the process of achieving a healthy work-life balance and finding happiness in your career. By the end of this book, you'll have all the tools and strategies you need to achieve work-life balance and increase your happiness at work. So let's get started!
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 Work-life balance
