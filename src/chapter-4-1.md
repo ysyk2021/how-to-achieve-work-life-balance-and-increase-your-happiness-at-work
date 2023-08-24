@@ -1,5 +1,3 @@
-Importance of Setting Priorities and Boundaries
-=============================================================================================
 
 Setting priorities and boundaries is essential for achieving work-life balance and overall well-being. In this chapter, we'll explore the importance of setting priorities and boundaries, and strategies for doing so effectively.
 

@@ -1,5 +1,3 @@
-Techniques for Setting Priorities and Boundaries in the Workplace
-===============================================================================================================
 
 Setting priorities and boundaries is essential for achieving work-life balance and increasing happiness at work. In this chapter, we'll explore techniques for setting priorities and boundaries in the workplace.
 

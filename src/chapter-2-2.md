@@ -1,5 +1,3 @@
-Why It Matters
-=====================================================
 
 Defining work-life balance is essential for achieving greater satisfaction and fulfillment both personally and professionally. In this chapter, we'll explore why work-life balance matters and how it can impact overall well-being.
 

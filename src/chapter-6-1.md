@@ -1,5 +1,3 @@
-Overview of Mindfulness Practices
-=========================================================================================================
 
 Mindfulness practices can be highly effective in reducing stress levels and improving focus and concentration. In this chapter, we'll explore an overview of mindfulness practices and how they can promote overall well-being.
 

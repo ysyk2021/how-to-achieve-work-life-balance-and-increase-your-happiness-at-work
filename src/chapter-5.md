@@ -1,5 +1,3 @@
-Chapter 5: Time Management Strategies for Improved Productivity
-===============================================================
 
 Effective time management is essential for achieving work-life balance and increased productivity. In this chapter, we'll explore time management techniques for better productivity and creating a schedule that supports work-life balance.
 

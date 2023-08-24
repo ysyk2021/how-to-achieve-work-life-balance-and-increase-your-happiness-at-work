@@ -1,5 +1,3 @@
-Common Obstacles to Work-Life Balance
-===========================================================================================
 
 Achieving work-life balance can be challenging due to various obstacles that individuals may face. In this chapter, we'll explore common obstacles to work-life balance and ways to overcome them.
 

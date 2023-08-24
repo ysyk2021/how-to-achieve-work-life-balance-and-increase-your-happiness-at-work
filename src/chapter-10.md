@@ -1,5 +1,3 @@
-Chapter 10: Implementing Lasting Change
-=======================================
 
 Implementing lasting change is essential for achieving work-life balance and overall well-being. In this chapter, we'll explore strategies for incorporating work-life balance practices into daily routines, tracking progress, and celebrating successes.
 

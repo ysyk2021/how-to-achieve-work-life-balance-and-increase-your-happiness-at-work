@@ -1,5 +1,3 @@
-Chapter 6: Mindfulness Practices for Reduced Stress and Improved Focus
-======================================================================
 
 Mindfulness practices can be highly effective in promoting reduced stress and improved focus, both of which are essential for achieving work-life balance and overall well-being. In this chapter, we'll explore mindfulness practices and the benefits they can bring to the workplace.
 

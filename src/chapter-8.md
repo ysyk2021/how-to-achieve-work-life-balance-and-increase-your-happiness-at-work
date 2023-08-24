@@ -1,5 +1,3 @@
-Chapter 8: Incorporating Self-Care into Your Routine
-====================================================
 
 Incorporating self-care into your routine is essential for achieving work-life balance and overall well-being. In this chapter, we'll explore the importance of self-care and techniques for incorporating self-care into your routine.
 

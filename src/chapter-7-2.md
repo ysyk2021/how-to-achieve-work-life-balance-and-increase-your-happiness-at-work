@@ -1,5 +1,3 @@
-Developing a Network of Support Outside of Work
-============================================================================================================
 
 Developing supportive relationships and networks is essential for achieving work-life balance and increasing happiness at work. In this chapter, we'll explore the importance of developing a network of support outside of work.
 

@@ -1,5 +1,3 @@
-Techniques for Incorporating Self-Care into Your Routine
-==============================================================================================================
 
 Incorporating self-care into your routine is essential for promoting overall well-being and success. In this chapter, we'll explore techniques for incorporating self-care into your routine.
 

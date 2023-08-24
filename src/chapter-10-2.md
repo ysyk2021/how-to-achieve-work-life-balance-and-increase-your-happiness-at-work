@@ -1,5 +1,3 @@
-Tracking Progress and Celebrating Successes
-====================================================================================
 
 Implementing lasting change towards work-life balance and increasing happiness at work is an ongoing process that requires effort, commitment, and self-awareness. In this chapter, we'll explore techniques for tracking progress and celebrating successes to ensure the implementation of lasting change.
 

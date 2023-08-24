@@ -1,5 +1,3 @@
-Chapter 3: Assessing Your Current Work-Life Balance
-===================================================
 
 Assessing your current work-life balance is an essential step in achieving overall well-being and satisfaction. In this chapter, we'll explore techniques for assessing your current work-life balance and identifying areas of imbalance.
 

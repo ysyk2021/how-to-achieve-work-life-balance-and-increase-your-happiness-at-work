@@ -1,5 +1,3 @@
-Chapter 7: Developing Supportive Relationships and Networks
-===========================================================
 
 Developing supportive relationships and networks can be highly effective in promoting work-life balance and overall well-being. In this chapter, we'll explore how to build supportive relationships with colleagues and develop a network of support outside of work.
 

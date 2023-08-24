@@ -1,5 +1,3 @@
-Techniques for Assessing Your Current Work-Life Balance
-============================================================================================================
 
 Assessing your current work-life balance is the first step towards achieving greater satisfaction and fulfillment both personally and professionally. In this chapter, we'll explore techniques for assessing your current work-life balance.
 

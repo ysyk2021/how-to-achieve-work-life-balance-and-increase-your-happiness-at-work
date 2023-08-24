@@ -1,5 +1,3 @@
-Importance of Self-Care for Work-Life Balance
-===================================================================================================
 
 Incorporating self-care into your routine is essential for promoting work-life balance and overall well-being. In this chapter, we'll explore why self-care is important for achieving work-life balance.
 

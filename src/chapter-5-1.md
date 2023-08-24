@@ -1,5 +1,3 @@
-Time Management Techniques for Better Productivity
-===================================================================================================================
 
 Effective time management is essential for achieving work-life balance and increasing productivity. In this chapter, we'll explore time management strategies to help you make the most out of your day.
 

@@ -1,5 +1,3 @@
-Benefits of Mindfulness in the Workplace
-================================================================================================================
 
 Mindfulness practices can be highly effective in reducing stress levels and improving focus and concentration in the workplace. In this chapter, we'll explore the benefits of mindfulness in the workplace.
 

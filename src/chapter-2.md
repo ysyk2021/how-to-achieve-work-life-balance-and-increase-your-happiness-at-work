@@ -1,5 +1,3 @@
-Chapter 2: Defining Work-Life Balance
-=====================================
 
 Defining work-life balance is an important step in achieving greater overall well-being and satisfaction. In this chapter, we'll explore what work-life balance is and why it matters.
 

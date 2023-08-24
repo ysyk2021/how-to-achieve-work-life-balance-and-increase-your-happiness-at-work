@@ -1,5 +1,3 @@
-Building Supportive Relationships with Colleagues
-==============================================================================================================
 
 Building supportive relationships with colleagues can be highly effective in promoting overall well-being and success. In this chapter, we'll explore ways to develop supportive relationships with colleagues.
 

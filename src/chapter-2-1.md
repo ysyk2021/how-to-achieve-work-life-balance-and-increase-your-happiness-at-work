@@ -1,5 +1,3 @@
-What is Work-Life Balance?
-=================================================================
 
 Defining work-life balance is essential for achieving greater satisfaction and fulfillment both personally and professionally. In this chapter, we'll explore what work-life balance is, why it's important, and how to achieve it.
 

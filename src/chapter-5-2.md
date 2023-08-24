@@ -1,5 +1,3 @@
-Creating a Schedule that Supports Work-Life Balance
-====================================================================================================================
 
 Creating a schedule that supports work-life balance can be highly effective in promoting productivity and overall well-being. In this chapter, we'll explore time management strategies for creating a schedule that supports work-life balance.
 

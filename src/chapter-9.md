@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Obstacles to Work-Life Balance
-====================================================
 
 Achieving work-life balance can be challenging, as there are many obstacles that can get in the way. In this chapter, we'll explore common obstacles to work-life balance and strategies for overcoming them.
 

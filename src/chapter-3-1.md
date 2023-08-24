@@ -1,5 +1,3 @@
-Identifying Areas of Imbalance
-===================================================================================
 
 Assessing your current work-life balance is the first step towards achieving greater balance and overall well-being. In this chapter, we'll explore strategies for assessing your current work-life balance and identifying areas of imbalance.
 

@@ -1,5 +1,3 @@
-Incorporating Work-Life Balance Practices into Daily Routines
-======================================================================================================
 
 Incorporating work-life balance practices into daily routines is crucial for achieving lasting change and increased happiness at work. In this chapter, we'll explore strategies for implementing lasting change.
 
