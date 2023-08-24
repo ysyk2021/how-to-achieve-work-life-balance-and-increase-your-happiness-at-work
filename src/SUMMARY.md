@@ -1,6 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
+- [Chapter 1: Introduction](README.md)
   - [The importance of work-life balance for happiness and well-being](chapter-1-1.md)
 - [Chapter 2: Defining Work-Life Balance](chapter-2.md)
   - [What is work-life balance?](chapter-2-1.md)
