@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Setting Priorities and Boundaries in the Workplace
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting priorities and boundaries in the workplace is crucial for achieving work-life balance and increasing happiness at work. In this chapter, we will explore effective techniques that can help you establish clear priorities, manage your time effectively, and create boundaries to protect your well-being.
 

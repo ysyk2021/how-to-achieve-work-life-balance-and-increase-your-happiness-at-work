@@ -1,5 +1,4 @@
-Chapter 5: Overview of Mindfulness Practices
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mindfulness practices offer powerful techniques to achieve work-life balance and increase happiness at work. In this chapter, we will explore the various mindfulness practices that can be incorporated into your daily routine to foster a sense of calm, clarity, and well-being.
 

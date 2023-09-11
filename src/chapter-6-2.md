@@ -1,5 +1,4 @@
-Chapter 6: Benefits of Mindfulness in the Workplace
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and high-pressure work environments, employees often experience stress, burnout, and a lack of work-life balance. One effective approach to managing these challenges is mindfulness. In this chapter, we will explore the benefits of mindfulness in the workplace and offer strategies for incorporating mindfulness practices into your work routine.
 

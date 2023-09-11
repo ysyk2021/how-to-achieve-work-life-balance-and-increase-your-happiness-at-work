@@ -1,5 +1,4 @@
-Chapter 2: Why Work-Life Balance Matters?
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The modern work culture often glorifies giving all of one's time and energy to work, leading to burnout and negative consequences on personal well-being. Thus, achieving work-life balance has become increasingly crucial in today's fast-paced world.
 

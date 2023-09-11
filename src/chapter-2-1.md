@@ -1,5 +1,4 @@
-Chapter 1: What is Work-Life Balance?
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Work-life balance refers to the equilibrium between your work responsibilities and your personal life, allowing you to effectively manage both aspects without one overshadowing the other. It involves finding a harmonious integration of work, family, personal interests, and well-being.
 

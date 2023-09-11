@@ -1,5 +1,4 @@
-Chapter 3: Building Supportive Relationships with Colleagues
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building supportive relationships with colleagues is crucial in achieving work-life balance. Positive relationships at work foster a sense of trust, respect, and support, leading to increased job satisfaction, reduced stress, and better health outcomes.
 

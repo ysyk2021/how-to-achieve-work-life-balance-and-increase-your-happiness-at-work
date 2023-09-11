@@ -1,5 +1,4 @@
-Chapter 5: Developing a Network of Support Outside of Work
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing a network of support outside of work is crucial to achieving work-life balance and increasing happiness. While work is an important aspect of our lives, having strong connections and support systems beyond the workplace contributes to overall well-being and fulfillment. In this chapter, we will explore strategies for building a network of support outside of work.
 

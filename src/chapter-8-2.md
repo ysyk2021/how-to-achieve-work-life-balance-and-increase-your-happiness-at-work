@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Incorporating Self-Care into Your Routine
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-care plays a crucial role in achieving work-life balance and increasing happiness at work. It involves prioritizing your physical, mental, and emotional well-being to recharge and rejuvenate. In this chapter, we will explore various techniques for incorporating self-care into your routine, allowing you to thrive both personally and professionally.
 

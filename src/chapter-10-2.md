@@ -1,5 +1,4 @@
-Chapter 7: Tracking Progress and Celebrating Successes
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of achieving work-life balance and increasing happiness at work, tracking progress and celebrating successes play a crucial role. By monitoring our advancement and acknowledging achievements, we can stay motivated, maintain momentum, and experience a sense of fulfillment. This chapter explores effective ways to track progress and celebrate successes along your professional journey.
 

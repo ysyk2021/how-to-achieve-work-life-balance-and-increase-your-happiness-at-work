@@ -1,5 +1,4 @@
-Chapter 8: Importance of Self-Care for Work-Life Balance
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Achieving work-life balance is not just about managing your time and responsibilities; it also involves taking care of yourself. Self-care plays a vital role in maintaining a healthy work-life balance and increasing happiness at work. In this chapter, we will explore the importance of self-care and how it contributes to overall well-being.
 

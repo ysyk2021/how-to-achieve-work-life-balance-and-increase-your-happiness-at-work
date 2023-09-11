@@ -1,5 +1,4 @@
-Chapter 4: Creating a Schedule That Supports Work-Life Balance
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a well-balanced schedule is essential for achieving work-life balance. A carefully planned schedule allows individuals to prioritize their work responsibilities while also carving out time for personal activities, self-care, and meaningful connections. In this chapter, we will explore practical strategies for creating a schedule that supports work-life balance.
 

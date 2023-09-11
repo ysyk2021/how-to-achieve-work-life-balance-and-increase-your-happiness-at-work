@@ -1,5 +1,4 @@
-Chapter 7: Common Obstacles to Work-Life Balance
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Achieving work-life balance can be challenging due to various obstacles that individuals often encounter. These obstacles can hinder our ability to find equilibrium between our professional and personal lives. In this chapter, we will explore some of the common obstacles to work-life balance and discuss strategies to overcome them.
 

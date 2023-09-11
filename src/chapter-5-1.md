@@ -1,5 +1,4 @@
-Chapter 6: Time Management Techniques for Better Productivity
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective time management is vital for achieving work-life balance and increasing productivity. By harnessing proven time management techniques, individuals can optimize their use of time, prioritize tasks, and accomplish more while maintaining a sense of balance. In this chapter, we will explore various time management techniques to enhance productivity.
 
